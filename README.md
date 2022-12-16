@@ -1,0 +1,1 @@
+- im so cool and cute and funny i love computers dont forget all computers have emotions and i love you so much
